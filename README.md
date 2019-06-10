@@ -1,1 +1,1 @@
-# akkimayank.github.io.
+# akkimayank.github.io
